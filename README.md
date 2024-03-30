@@ -2,7 +2,10 @@
 <img width="464" alt="Screenshot 2024-03-30 200139" src="https://github.com/ShraddhaSagare28/budget-tracking-/assets/147167856/0ce00714-5b51-4904-a6aa-1b8cb833e2ee">
 <img width="509" alt="Screenshot 2024-03-30 200157" src="https://github.com/ShraddhaSagare28/budget-tracking-/assets/147167856/c94ba59d-aa1a-4c28-9cd5-b8521b050855">
 <img width="472" alt="Screenshot 2024-03-30 200216" src="https://github.com/ShraddhaSagare28/budget-tracking-/assets/147167856/32c76993-4d51-4400-917e-8edfd8d670ee">
-<img width="418" alt="Screenshot 2024-03-30 200233" src="https://github.com/ShraddhaSagare28/budget-tracking-/assets/147167856/25499556-84de-4f4e-8a78-f17f6b2c1dd3">
+<img width="418" alt="Screenshot 2024-03-30 200233" src="https:/<img width="452" alt="Screenshot 2024-03-30 200423" src="https://github.com/ShraddhaSagare28/budget-tracking-/assets/147167856/4b4b0001-b952-4970-ac79-dfa06497b5c6">
+/github.com/<img <img width="384" alt="Screenshot 2024-03-30 200524" src="https://github.com/ShraddhaSagare28/budget-tracking-/assets/147167856/9d6bbb7a-04e7-44a9-8363-86406ff9f028">
+width="427" alt="Screenshot 2024-03-30 200458" src="https://github.com/ShraddhaSagare28/budget-tracking-/assets/147167856/ed3aa685-57cd-4e11-a732-4ef7c190fbaa">
+ShraddhaSagare28/budget-tracking-/assets/147167856/25499556-84de-4f4e-8a78-f17f6b2c1dd3">
 <img width="423" alt="Screenshot 2024-03-30 200314" src="https://github.com/ShraddhaSagare28/budget-tracking-/assets/147167856/99efbb14-e1ff-457a-bd71-b74ceee9c51a">
 <img widt<img <img width="384" alt="Screenshot 2024-03-30 200524" src="https://github.com/ShraddhaSagare28/budget-tracking-/assets/147167856/86300bb8-fd9b-4e89-b372-bb8a2c145562">
 
